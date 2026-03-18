@@ -1,0 +1,1 @@
+# collage-activity-point
